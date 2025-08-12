@@ -3,3 +3,12 @@
 
 # Resume
 **O código acima é básico e foi feito por mim há algum tempo. Não o utilizo mais, então resolvi postar. Não me responsabilizo pelo mal uso!**
+
+# Contact
+**Caso queira me contatar ou precise de algum serviço, me encontre nas seguintes plataformas:**
+
+**Discord User: 4wj.**
+
+**Instargram: @glowwz9**
+
+**Email: vliyanie1337@proton.me**
